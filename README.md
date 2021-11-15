@@ -5,5 +5,4 @@ buat bucin / buat doi / buat mantan klean / yeah whatever is :D
 This code made by <3 because gabut aja wkwk
 
 
-buy me a coffee and cigarretes ;)
-https://saweria.co/german0c3an
+<a href="https://saweria.co/german0c3an">buy me a coffee and cigarretes ;)</a>
